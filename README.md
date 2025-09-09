@@ -14,3 +14,5 @@ My grand parents stay with us and one of  my aunt stay in ooty and another aunt 
 #role model
 My role model is Virat Kholi . He is a cricketer with lot of passions .He is dedicted to what ever he does and very passionate in doing everything.
 From him i wish to learn the dedication he shows to his work,the hard work he does each time to excel and most importantly he never gives up what ever may be the situation.i wish i could learn these from him and this is main reason that he is my inspiration.
+#info 
+your teachings are good.I can understand the way you explain . you explain with more patience and you make sure that each and every student understands the topic.I wish i could learn more codings through your teaching.Help me to learn the codings as i am little bit afraid of coding.
