@@ -10,7 +10,7 @@ I took this course on my own interest.I wish i could excel in my coding step by 
 My father name is Senthil kumar.M. He is working as a customer experience manager in Tafe access company .
 My mother name is Latha.L and she is a teacher working in Suguna international school Gandhipuram. 
 I am the only daughter in my family.I dont have any siblings of my own.
-My grand parents stay with us and one of  my aunt stay in ooty and another aunt stay in kotagiri.
+My fathers parents stay with us in coimbatore and mothers parents stay in ooty.
 #role model
 My role model is Virat Kholi . He is a cricketer with lot of passions .He is dedicted to what ever he does and very passionate in doing everything.
 From him i wish to learn the dedication he shows to his work,the hard work he does each time to excel and most importantly he never gives up what ever may be the situation.i wish i could learn these from him and this is main reason that he is my inspiration.
