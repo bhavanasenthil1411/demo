@@ -16,3 +16,18 @@ My role model is Virat Kholi . He is a cricketer with lot of passions .He is ded
 From him i wish to learn the dedication he shows to his work,the hard work he does each time to excel and most importantly he never gives up what ever may be the situation.i wish i could learn these from him and this is main reason that he is my inspiration.
 #info 
 your teachings are good.I can understand the way you explain . you explain with more patience and you make sure that each and every student understands the topic.I wish i could learn more codings through your teaching.Help me to learn the codings as i am little bit afraid of coding.
+
+
+#######################################################################################################################
+
+Bhavana,
+
+I am very happy to read about you. It’s wonderful that you chose CSE out of your own interest and already have some background in Python from school. That interest itself is your biggest strength. Don’t worry about being afraid of coding — fear is natural in the beginning, but step by step, you will definitely become confident.
+
+I am also very glad to know that you understand my way of teaching. Thank you for your kind words. 
+
+I will surely guide you step by step, and I promise that with regular practice you will start enjoying coding instead of fearing it.
+
+Stay consistent, ask questions whenever you feel doubts, and focus on steady improvement. I am confident that with your interest and dedication, you will excel in coding and achieve your goals.
+
+All the very best, Bhavana — keep learning, keep growing, and never give up!
